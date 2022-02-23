@@ -13,4 +13,4 @@ OQ Q QUER DESGRAÇA DESFRAAÇAÇAK
 ta bom mas stephen curry?
 STEFEIN COURI
 
-Cada dia uma frase nova?
+Cada dia uma frase nova?sim
