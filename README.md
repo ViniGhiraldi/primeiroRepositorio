@@ -14,3 +14,5 @@ ta bom mas stephen curry?
 STEFEIN COURI
 
 Cada dia uma frase nova?sim
+
+Eu sou o escolhido pra ter erros em todas as programaões possiveis AAAAAAAAAAAAAAAAAAAAAAA
